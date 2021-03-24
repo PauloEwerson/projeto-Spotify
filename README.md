@@ -1,3 +1,3 @@
 # projeto-Spotify
 
-encurtador.com.br/gkAV0
+https://infallible-franklin-deae9b.netlify.app/
