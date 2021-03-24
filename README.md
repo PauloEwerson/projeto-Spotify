@@ -1,3 +1,3 @@
 # projeto-Spotify
 
-https://abre.ai/cmoc
+encurtador.com.br/gkAV0
